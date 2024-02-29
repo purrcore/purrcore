@@ -1,1 +1,3 @@
-![](https://media.discordapp.net/attachments/955278858867843082/1211012599689379971/499d3acfa832a0edc69a99e3f081796c.jpg?ex=65eca65f&is=65da315f&hm=acf36b4d18c42858fd4481f8d9de961928b493b8033d69fe8e9768b60c217e73&=&format=webp&width=600&height=600)
+![](https://media.discordapp.net/attachments/1210387829985648790/1212812968950112296/c0bd47db2d58516a85ec5621526213f4-removebg-preview.png?ex=65f33318&is=65e0be18&hm=1811f695f84b97eaac614f76a7695ce8fac8810968da642d15c1c0749169cfba&=&format=webp&quality=lossless&width=883&height=441)
+
+[alt 1](https://github.com/VITOPLUSHIE)**◞** [alt 2](https://github.com/ryusei-shidou)**◞** [alt 3](https://github.com/enneagram-six)**◞** [alt 4](https://github.com/vampirebrainrot)ㅤ—ㅤ**੭୧**ㅤ[main rentry](https://rentry.co/ryusei-plushie)**﹒** ryusei shidou enthusiast. (＞。☆ )
