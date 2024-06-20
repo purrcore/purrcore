@@ -1,5 +1,1 @@
-remaking coming soon im lazy
-
-vitoria / vito / vi Any prns she preferred Brazillian whitino ptbr + english + broken spanish
-Mostly if not always afk around treehugger spot/old bllk area !!! w2i or sign retrospring
-dock games enjoyer + server coming soon
+Heres my lazy ass intro (im working in a prettier version PINKY PROMISE) https://rentry.co/purrfect-tale
