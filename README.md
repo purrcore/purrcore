@@ -1,4 +1,3 @@
-remaking profile layout pls read this as a lazy intro https://rentry.co/purrfect-tale
-no the tags on my profile shouldnt be taken seriously i love all ym friends verry muuuch
+![](https://komarev.com/ghpvc/?username=purrcore&base=1200&style=flat&color=ace17e)
 
-IMPORTANT LINK ID LIKE MORE PPL TO SEE: https://meowest.straw.page/
+profile layout being remade pls dont mind the mess thx
