@@ -1,4 +1,4 @@
-### <p align="center"> @eunyungbaek
+### <p align="center"> [@eunyungbaek](https://github.com/eunyungbaek)
 # <p align="center"> ![](https://i.postimg.cc/Pq7Qzg2R/image.png)
 ##### <p align="center"> graphic made by bon - @marionettia <3
 
