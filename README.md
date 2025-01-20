@@ -1,5 +1,14 @@
-[@eunyungbaek](https://github.com/eunyungbaek) Hi 
-Vito: scrolling on twitterRyusei: wraps his arms around my waist heh.. on twitter again?Vito: (with a jealous look on my face) yeah... my oomfs are all going crazy over your pics...Ryusei: it's ok baby... i'm all yours.... kisses my cheek
+[@eunyungbaek](https://github.com/eunyungbaek)
+
+Vito: scrolling on twitter
+
+Ryusei: wraps his arms around my waist heh.. on twitter again?
+
+Vito: (with a jealous look on my face) yeah... my oomfs are all going crazy over your pics...
+
+Ryusei: it's ok baby... i'm all yours.... kisses my cheek
+
+----
 
 Dont mind the mess im reorganizing ! for now:
 
