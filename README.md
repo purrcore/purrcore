@@ -1,23 +1,13 @@
-[@eunyungbaek](https://github.com/eunyungbaek)
+### ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[@eunyungbaek](https://github.com/eunyungbaek)
 
-Vito: scrolling on twitter
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[@1337n7](https://github.com/1337n7)⠀[@gloomtown](https://github.com/gloomtown)⠀[@bathroombreak](https://github.com/bathroombreak)⠀[@basementjazz](https://github.com/basementjazz)⠀[@kyostro](https://github.com/kyostro)⠀[@lobocorp](https://github.com/lobocorp)⠀+⠀lovemail
 
-Ryusei: wraps his arms around my waist heh.. on twitter again?
+![](https://i.postimg.cc/26GPpyg9/ezgif-com-gif-maker-96.gif)
 
-Vito: (with a jealous look on my face) yeah... my oomfs are all going crazy over your pics...
+⠀⠀⠀⠀⠀
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀Hi! I'm Vito or anything that comes from Vitória.⠀⠀⠀⠀PTBR/EN/ESP.⠀⠀⠀⠀[Main rentry (outdated)](https://rentry.co/amaimon)
 
-Ryusei: it's ok baby... i'm all yours.... kisses my cheek
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀Mostly if not always in old bllk area or docks.⠀⠀⠀⠀⠀Sign my [ata](https://ryuvi.atabook.org/) and check my [score board](https://rentry.co/-docks) w/ Jay! ♡
 
-----
-
-Dont mind the mess im reorganizing ! for now:
-
-vito(ria) or hugo or cha Any pronouns sheher preferred ptbr&eng&esp
-
-SiFe e6 MIGHT be mistyped tho bc its been long since ive last studied typology
-
-mostly if not always at docks or big tree near spawn/genshin area
-
-[main rentry](https://rentry.co/amaimon) and [atabook](https://ryuvi.atabook.org/) and [score board w/ jay](https://rentry.co/-docks)
-
-shout out to [treehug family](https://rentry.co/ponytownfamily)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀Shout out to [treehug family](https://rentry.co/ponytownfamily)⠀⠀⠀⠀⠀+⠀⠀⠀⠀⠀to my beautiful boyfriend Pedro who doesn't have a gh profile.
+- - -
