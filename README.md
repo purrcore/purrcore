@@ -1,6 +1,6 @@
 ### ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[@eunyungbaek](https://github.com/eunyungbaek)
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[@1337n7](https://github.com/1337n7)⠀[@gloomtown](https://github.com/gloomtown)⠀[@bathroombreak](https://github.com/bathroombreak)⠀[@basementjazz](https://github.com/basementjazz)⠀[@kyostro](https://github.com/kyostro)⠀[@lobocorp](https://github.com/lobocorp)⠀+⠀lovemail
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[@1337n7](https://github.com/1337n7)⠀[@gloomtown](https://github.com/gloomtown)⠀[@kyostro](https://github.com/kyostro)⠀[@lobocorp](https://github.com/lobocorp)⠀+⠀lovemail
 
 ![](https://i.postimg.cc/26GPpyg9/ezgif-com-gif-maker-96.gif)
 
